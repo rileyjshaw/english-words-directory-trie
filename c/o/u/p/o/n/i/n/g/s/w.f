@@ -1,0 +1,1 @@
+couponings.69020224

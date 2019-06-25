@@ -1,0 +1,1 @@
+thousandths.285600293

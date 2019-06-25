@@ -1,0 +1,1 @@
+phosphoglyceraldehyde.130900299

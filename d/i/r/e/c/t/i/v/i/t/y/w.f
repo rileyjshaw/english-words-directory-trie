@@ -1,0 +1,1 @@
+directivity.74970473

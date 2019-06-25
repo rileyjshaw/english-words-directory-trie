@@ -1,0 +1,1 @@
+skutterudite.153510524

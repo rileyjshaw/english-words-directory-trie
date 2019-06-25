@@ -1,0 +1,1 @@
+affirmants.45815271

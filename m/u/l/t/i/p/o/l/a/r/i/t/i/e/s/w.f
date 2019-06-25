@@ -1,0 +1,1 @@
+multipolarities.116620474

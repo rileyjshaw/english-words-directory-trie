@@ -1,0 +1,1 @@
+gyromagnetism.92820260

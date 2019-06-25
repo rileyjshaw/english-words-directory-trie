@@ -1,0 +1,1 @@
+anticodons.48790189

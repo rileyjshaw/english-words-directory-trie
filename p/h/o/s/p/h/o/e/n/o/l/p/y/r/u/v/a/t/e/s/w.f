@@ -1,0 +1,1 @@
+phosphoenolpyruvates.130900294

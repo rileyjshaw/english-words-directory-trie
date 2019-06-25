@@ -1,0 +1,1 @@
+stereometrical.158270402

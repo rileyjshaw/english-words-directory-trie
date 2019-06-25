@@ -1,0 +1,1 @@
+monopolists.247520264

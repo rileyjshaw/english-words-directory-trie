@@ -1,0 +1,1 @@
+oligopolistic.31535373

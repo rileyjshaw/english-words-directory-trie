@@ -1,0 +1,1 @@
+spectinomycin.15648547

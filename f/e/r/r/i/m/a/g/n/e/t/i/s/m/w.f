@@ -1,0 +1,1 @@
+ferrimagnetism.85085126

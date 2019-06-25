@@ -1,0 +1,1 @@
+eurocurrencies.21896080

@@ -1,0 +1,1 @@
+barycenters.52955548

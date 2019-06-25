@@ -1,0 +1,1 @@
+streptomycins.159460227

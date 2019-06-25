@@ -1,0 +1,1 @@
+vernacularize.292740363

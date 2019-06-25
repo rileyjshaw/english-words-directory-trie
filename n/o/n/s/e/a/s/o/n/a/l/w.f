@@ -1,0 +1,1 @@
+nonseasonal.250495475

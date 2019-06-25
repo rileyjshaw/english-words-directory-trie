@@ -1,0 +1,1 @@
+fundamentals.224315363

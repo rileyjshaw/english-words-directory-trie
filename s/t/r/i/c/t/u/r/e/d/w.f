@@ -1,0 +1,1 @@
+strictured.39270352

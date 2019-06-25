@@ -1,0 +1,1 @@
+currencies.20765578

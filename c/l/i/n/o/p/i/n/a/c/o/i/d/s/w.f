@@ -1,0 +1,1 @@
+clinopinacoids.64260493

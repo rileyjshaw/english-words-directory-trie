@@ -1,0 +1,1 @@
+icosahedron.25585523

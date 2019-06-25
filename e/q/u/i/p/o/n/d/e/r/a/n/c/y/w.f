@@ -1,0 +1,1 @@
+equiponderancy.82110144

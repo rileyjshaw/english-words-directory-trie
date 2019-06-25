@@ -1,0 +1,1 @@
+fortunetellings.87465172

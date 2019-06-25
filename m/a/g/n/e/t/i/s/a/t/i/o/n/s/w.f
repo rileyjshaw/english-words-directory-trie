@@ -1,0 +1,1 @@
+magnetisations.242760437

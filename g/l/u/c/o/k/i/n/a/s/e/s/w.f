@@ -1,0 +1,1 @@
+glucokinases.90440540

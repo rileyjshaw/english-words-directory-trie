@@ -1,0 +1,1 @@
+characterizations.199920536

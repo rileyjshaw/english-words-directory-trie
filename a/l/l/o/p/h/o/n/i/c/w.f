@@ -1,0 +1,1 @@
+allophonic.11900353

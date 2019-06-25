@@ -1,0 +1,1 @@
+heritability.24990297

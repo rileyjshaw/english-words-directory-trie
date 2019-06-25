@@ -1,0 +1,1 @@
+homoscedasticity.9639028

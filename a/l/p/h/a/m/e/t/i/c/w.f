@@ -1,0 +1,1 @@
+alphametic.47005380

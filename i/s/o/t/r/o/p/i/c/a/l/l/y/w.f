@@ -1,0 +1,1 @@
+isotropically.236810489

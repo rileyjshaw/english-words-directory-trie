@@ -1,0 +1,1 @@
+nonearnings.12019042

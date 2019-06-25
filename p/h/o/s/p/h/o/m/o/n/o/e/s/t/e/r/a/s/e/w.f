@@ -1,0 +1,1 @@
+phosphomonoesterase.130900308

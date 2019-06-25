@@ -1,0 +1,1 @@
+franchisability.23205199

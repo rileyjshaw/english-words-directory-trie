@@ -1,0 +1,1 @@
+homoscedastic.9639026

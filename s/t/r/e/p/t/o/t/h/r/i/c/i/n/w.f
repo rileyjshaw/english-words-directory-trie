@@ -1,0 +1,1 @@
+streptothricin.39270335

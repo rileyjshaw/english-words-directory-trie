@@ -1,0 +1,1 @@
+polytetrafluoroethylene's.133875392

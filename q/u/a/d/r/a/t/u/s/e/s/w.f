@@ -1,0 +1,1 @@
+quadratuses.139230307

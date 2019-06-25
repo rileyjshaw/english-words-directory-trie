@@ -1,0 +1,1 @@
+quadrantal.35105446

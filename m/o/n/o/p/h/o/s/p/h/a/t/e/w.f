@@ -1,0 +1,1 @@
+monophosphate.247520241

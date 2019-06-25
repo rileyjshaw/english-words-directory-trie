@@ -1,0 +1,1 @@
+pyranometers.263585420

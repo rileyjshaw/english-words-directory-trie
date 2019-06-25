@@ -1,0 +1,1 @@
+multicurrencies.248115562

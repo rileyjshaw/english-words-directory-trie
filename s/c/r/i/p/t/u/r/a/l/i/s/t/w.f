@@ -1,0 +1,1 @@
+scripturalist.14994047

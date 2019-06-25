@@ -1,0 +1,1 @@
+dihydrostreptomycin.19635404

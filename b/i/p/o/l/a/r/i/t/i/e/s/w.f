@@ -1,0 +1,1 @@
+bipolarities.5593030

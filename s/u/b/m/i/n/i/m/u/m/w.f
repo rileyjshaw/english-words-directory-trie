@@ -1,0 +1,1 @@
+subminimum.39270567

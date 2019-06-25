@@ -1,0 +1,1 @@
+intermittency's.101745109

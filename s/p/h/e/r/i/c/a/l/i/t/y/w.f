@@ -1,0 +1,1 @@
+sphericality.156485313

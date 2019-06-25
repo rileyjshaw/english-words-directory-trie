@@ -1,0 +1,1 @@
+heritabilities.94605536

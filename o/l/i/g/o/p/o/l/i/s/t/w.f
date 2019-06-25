@@ -1,0 +1,1 @@
+oligopolist.31535372

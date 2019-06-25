@@ -1,0 +1,1 @@
+thermistor's.166005144

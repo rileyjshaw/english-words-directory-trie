@@ -1,0 +1,1 @@
+anisotropies.12495224

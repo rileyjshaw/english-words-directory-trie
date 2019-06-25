@@ -1,0 +1,1 @@
+eurocurrency.82705353

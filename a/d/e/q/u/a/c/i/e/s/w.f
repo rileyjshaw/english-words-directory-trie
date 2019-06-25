@@ -1,0 +1,1 @@
+adequacies.45220371

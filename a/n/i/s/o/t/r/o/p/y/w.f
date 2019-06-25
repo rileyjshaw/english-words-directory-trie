@@ -1,0 +1,1 @@
+anisotropy.12495225

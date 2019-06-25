@@ -1,0 +1,1 @@
+thermistor.40460581

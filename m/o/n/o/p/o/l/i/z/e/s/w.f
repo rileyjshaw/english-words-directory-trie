@@ -1,0 +1,1 @@
+monopolizes.247520271

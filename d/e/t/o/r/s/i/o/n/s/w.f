@@ -1,0 +1,1 @@
+detorsions.73780401

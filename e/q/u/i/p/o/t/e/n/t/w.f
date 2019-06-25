@@ -1,0 +1,1 @@
+equipotent.82110149

@@ -1,0 +1,1 @@
+adoptabilities.45220490

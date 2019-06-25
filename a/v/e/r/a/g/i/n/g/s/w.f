@@ -1,0 +1,1 @@
+averagings.19099529

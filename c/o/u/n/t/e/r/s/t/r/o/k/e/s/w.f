@@ -1,0 +1,1 @@
+counterstrokes.205870297

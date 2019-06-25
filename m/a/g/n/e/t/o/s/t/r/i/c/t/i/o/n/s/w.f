@@ -1,0 +1,1 @@
+magnetostrictions.110075191

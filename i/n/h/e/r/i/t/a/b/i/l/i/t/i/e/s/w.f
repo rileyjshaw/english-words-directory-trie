@@ -1,0 +1,1 @@
+inheritabilities.100555212

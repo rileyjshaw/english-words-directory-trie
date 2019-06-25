@@ -1,0 +1,1 @@
+stoicheiometric.158865280

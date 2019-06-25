@@ -1,0 +1,1 @@
+allosteric.47005239

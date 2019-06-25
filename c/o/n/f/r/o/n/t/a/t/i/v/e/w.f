@@ -1,0 +1,1 @@
+confrontative.66640416

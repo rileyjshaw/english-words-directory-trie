@@ -1,0 +1,1 @@
+annularities.48195404

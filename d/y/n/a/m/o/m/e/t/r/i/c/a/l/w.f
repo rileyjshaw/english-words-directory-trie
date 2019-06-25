@@ -1,0 +1,1 @@
+dynamometrical.78540402

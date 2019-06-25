@@ -1,0 +1,1 @@
+hegemonies.94010523

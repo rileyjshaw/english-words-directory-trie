@@ -1,0 +1,1 @@
+leptokurtic.240380485

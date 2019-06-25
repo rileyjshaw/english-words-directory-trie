@@ -1,0 +1,1 @@
+magnetoresistance.110075187

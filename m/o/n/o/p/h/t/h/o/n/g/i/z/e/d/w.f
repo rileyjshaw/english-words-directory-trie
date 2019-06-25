@@ -1,0 +1,1 @@
+monophthongized.247520247

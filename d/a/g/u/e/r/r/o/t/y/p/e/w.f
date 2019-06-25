@@ -1,0 +1,1 @@
+daguerrotype.1904052

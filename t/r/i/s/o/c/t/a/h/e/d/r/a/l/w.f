@@ -1,0 +1,1 @@
+trisoctahedral.169575105

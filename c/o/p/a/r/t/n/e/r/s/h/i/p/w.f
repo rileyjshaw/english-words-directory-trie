@@ -1,0 +1,1 @@
+copartnership.17850297

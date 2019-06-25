@@ -1,0 +1,1 @@
+vernaculars.292740367

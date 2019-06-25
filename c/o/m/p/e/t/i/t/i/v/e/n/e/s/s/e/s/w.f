@@ -1,0 +1,1 @@
+competitivenesses.66045462
