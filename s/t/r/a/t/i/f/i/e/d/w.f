@@ -1,1 +1,0 @@
-stratified.28084069

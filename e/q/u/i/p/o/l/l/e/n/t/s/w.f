@@ -1,1 +1,0 @@
-equipollents.82110141

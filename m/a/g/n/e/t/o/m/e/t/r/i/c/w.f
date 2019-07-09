@@ -1,1 +1,0 @@
-magnetometric.110075180

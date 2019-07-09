@@ -1,1 +1,0 @@
-counterpowers.6902051

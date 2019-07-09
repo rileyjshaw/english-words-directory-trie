@@ -1,1 +1,0 @@
-mycoplasmal.117215400

@@ -1,1 +1,0 @@
-panradiometer.254660543

@@ -1,1 +1,0 @@
-compradores.66045565

@@ -1,1 +1,0 @@
-aplanospore.12495590

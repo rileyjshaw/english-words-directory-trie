@@ -1,1 +1,0 @@
-thyroglobulins.166600235

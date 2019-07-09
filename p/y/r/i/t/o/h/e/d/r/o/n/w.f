@@ -1,1 +1,0 @@
-pyritohedron.13923082

@@ -1,1 +1,0 @@
-ceilometer.16065258

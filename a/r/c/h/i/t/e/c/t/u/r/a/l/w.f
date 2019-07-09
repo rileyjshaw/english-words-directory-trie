@@ -1,1 +1,0 @@
-architectural.189210286

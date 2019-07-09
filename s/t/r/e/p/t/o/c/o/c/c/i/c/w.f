@@ -1,1 +1,0 @@
-streptococcic.159460215

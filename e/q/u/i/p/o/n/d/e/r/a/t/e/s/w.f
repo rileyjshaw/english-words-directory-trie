@@ -1,1 +1,0 @@
-equiponderates.82110147

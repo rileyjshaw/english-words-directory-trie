@@ -1,1 +1,0 @@
-thermographically.166005181

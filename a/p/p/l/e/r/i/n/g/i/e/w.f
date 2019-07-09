@@ -1,1 +1,0 @@
-appleringie.188615470

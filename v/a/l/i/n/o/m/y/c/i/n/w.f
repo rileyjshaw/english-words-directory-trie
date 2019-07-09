@@ -1,1 +1,0 @@
-valinomycin.17671547

@@ -1,1 +1,0 @@
-obturation.12197527

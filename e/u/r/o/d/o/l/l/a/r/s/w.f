@@ -1,1 +1,0 @@
-eurodollars.21896084

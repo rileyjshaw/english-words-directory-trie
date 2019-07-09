@@ -1,1 +1,0 @@
-hexokinases.95200312

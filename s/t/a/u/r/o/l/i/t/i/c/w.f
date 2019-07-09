@@ -1,1 +1,0 @@
-staurolitic.15827039

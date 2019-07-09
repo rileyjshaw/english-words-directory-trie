@@ -1,1 +1,0 @@
-lemniscates.107100511

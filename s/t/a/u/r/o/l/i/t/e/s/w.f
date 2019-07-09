@@ -1,1 +1,0 @@
-staurolites.15827038

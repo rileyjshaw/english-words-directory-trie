@@ -1,1 +1,0 @@
-barycentric.13685521

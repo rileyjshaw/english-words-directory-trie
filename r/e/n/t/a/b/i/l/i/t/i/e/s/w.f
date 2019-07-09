@@ -1,1 +1,0 @@
-rentabilities.143395373

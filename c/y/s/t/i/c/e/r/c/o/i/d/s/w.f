@@ -1,1 +1,0 @@
-cysticercoids.70805488

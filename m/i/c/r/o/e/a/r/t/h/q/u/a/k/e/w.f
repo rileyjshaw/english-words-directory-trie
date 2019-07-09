@@ -1,1 +1,0 @@
-microearthquake.113050197

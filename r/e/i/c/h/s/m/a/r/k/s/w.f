@@ -1,1 +1,0 @@
-reichsmarks.142800224

@@ -1,1 +1,0 @@
-spiralities.278460412

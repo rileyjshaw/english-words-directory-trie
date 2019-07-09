@@ -1,1 +1,0 @@
-sestertium.37485504

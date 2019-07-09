@@ -1,1 +1,0 @@
-cysticercosis.70805490

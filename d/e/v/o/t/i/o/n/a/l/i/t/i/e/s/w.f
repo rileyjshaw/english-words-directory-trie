@@ -1,1 +1,0 @@
-devotionalities.21122552

@@ -1,1 +1,0 @@
-vernacularities.292740362

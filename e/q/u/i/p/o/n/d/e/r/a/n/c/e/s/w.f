@@ -1,1 +1,0 @@
-equiponderances.82110142

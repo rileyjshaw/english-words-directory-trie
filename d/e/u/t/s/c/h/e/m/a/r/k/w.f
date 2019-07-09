@@ -1,1 +1,0 @@
-deutschemark.19635149

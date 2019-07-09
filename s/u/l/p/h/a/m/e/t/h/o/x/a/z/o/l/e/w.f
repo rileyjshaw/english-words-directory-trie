@@ -1,1 +1,0 @@
-sulphamethoxazole.161245133

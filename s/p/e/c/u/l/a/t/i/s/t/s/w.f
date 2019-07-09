@@ -1,1 +1,0 @@
-speculatists.15648594

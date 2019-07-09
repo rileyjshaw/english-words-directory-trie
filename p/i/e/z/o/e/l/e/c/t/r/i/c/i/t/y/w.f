@@ -1,1 +1,0 @@
-piezoelectricity.33320506

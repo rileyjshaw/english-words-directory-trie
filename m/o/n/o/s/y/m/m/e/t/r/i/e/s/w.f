@@ -1,1 +1,0 @@
-monosymmetries.247520294

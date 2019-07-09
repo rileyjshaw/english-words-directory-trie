@@ -1,1 +1,0 @@
-solarimeter.155295147

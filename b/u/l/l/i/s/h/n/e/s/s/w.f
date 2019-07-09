@@ -1,1 +1,0 @@
-bullishness.196945217

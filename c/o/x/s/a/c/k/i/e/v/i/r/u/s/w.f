@@ -1,1 +1,0 @@
-coxsackievirus.69020419

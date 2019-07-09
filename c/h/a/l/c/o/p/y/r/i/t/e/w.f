@@ -1,1 +1,0 @@
-chalcopyrite.16065432

@@ -1,1 +1,0 @@
-oscillographic.123165556

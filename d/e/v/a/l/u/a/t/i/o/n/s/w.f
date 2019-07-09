@@ -1,1 +1,0 @@
-devaluations.210630562

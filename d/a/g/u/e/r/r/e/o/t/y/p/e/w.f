@@ -1,1 +1,0 @@
-daguerreotype.207655521

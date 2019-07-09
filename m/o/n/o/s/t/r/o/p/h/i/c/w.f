@@ -1,1 +1,0 @@
-monostrophic.115430521

@@ -1,1 +1,0 @@
-telephotographic.40460287

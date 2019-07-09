@@ -1,1 +1,0 @@
-rotographed.270130277

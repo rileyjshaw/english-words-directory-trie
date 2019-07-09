@@ -1,1 +1,0 @@
-downstroke's.77350538

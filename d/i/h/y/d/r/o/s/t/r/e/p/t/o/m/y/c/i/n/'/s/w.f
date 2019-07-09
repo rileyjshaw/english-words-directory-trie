@@ -1,1 +1,0 @@
-dihydrostreptomycin's.74970107

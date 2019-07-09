@@ -1,1 +1,0 @@
-gonococcus's.91035420

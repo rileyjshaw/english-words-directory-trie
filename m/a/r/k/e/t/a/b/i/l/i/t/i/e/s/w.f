@@ -1,1 +1,0 @@
-marketabilities.110670520

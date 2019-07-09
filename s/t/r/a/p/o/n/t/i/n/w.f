@@ -1,1 +1,0 @@
-strapontin.15946052

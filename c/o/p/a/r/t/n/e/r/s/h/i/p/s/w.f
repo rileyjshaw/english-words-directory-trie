@@ -1,1 +1,0 @@
-copartnerships.17850298

@@ -1,1 +1,0 @@
-magnifications.242760465

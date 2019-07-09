@@ -1,1 +1,0 @@
-marriageabilities.110670586

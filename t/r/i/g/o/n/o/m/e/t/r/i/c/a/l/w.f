@@ -1,1 +1,0 @@
-trigonometrical.1071010

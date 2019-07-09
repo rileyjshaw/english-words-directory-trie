@@ -1,1 +1,0 @@
-gnosiologies.226695268

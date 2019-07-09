@@ -1,1 +1,0 @@
-stratocumuli.15946094

@@ -1,1 +1,0 @@
-denominates.210035206

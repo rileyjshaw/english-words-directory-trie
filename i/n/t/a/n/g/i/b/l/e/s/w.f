@@ -1,1 +1,0 @@
-intangibles.235620574

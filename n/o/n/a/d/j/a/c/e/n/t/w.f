@@ -1,1 +1,0 @@
-nonadjacent.250495158

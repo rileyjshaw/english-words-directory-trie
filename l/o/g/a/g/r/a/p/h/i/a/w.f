@@ -1,1 +1,0 @@
-logagraphia.241570494

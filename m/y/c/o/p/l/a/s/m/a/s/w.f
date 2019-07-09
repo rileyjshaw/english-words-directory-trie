@@ -1,1 +1,0 @@
-mycoplasmas.117215401

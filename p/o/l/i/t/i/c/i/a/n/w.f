@@ -1,1 +1,0 @@
-politician.1190414

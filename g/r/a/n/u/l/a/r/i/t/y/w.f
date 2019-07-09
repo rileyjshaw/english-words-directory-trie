@@ -1,1 +1,0 @@
-granularity.227290450

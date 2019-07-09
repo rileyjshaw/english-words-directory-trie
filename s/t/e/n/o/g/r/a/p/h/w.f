@@ -1,1 +1,0 @@
-stenograph.39270111

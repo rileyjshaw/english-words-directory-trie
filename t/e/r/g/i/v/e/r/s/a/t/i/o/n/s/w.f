@@ -1,1 +1,0 @@
-tergiversations.40460399

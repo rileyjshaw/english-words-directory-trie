@@ -1,1 +1,0 @@
-stratiform.39270307

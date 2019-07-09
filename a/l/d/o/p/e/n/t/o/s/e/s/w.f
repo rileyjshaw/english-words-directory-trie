@@ -1,1 +1,0 @@
-aldopentoses.186830102

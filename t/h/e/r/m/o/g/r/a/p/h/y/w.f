@@ -1,1 +1,0 @@
-thermography.410555

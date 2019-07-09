@@ -1,1 +1,0 @@
-stereoscope.2802458

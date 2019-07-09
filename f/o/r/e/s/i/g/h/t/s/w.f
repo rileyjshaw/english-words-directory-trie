@@ -1,1 +1,0 @@
-foresights.86870484

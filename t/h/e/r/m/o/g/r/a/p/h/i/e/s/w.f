@@ -1,1 +1,0 @@
-thermographies.166005182

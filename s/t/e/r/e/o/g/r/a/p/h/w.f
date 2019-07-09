@@ -1,1 +1,0 @@
-stereograph.39270136

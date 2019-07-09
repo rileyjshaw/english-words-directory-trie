@@ -1,1 +1,0 @@
-seigniorship.150535132

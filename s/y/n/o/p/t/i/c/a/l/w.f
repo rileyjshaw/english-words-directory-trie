@@ -1,1 +1,0 @@
-synoptical.39865576

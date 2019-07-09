@@ -1,1 +1,0 @@
-cysticercoses.70805489

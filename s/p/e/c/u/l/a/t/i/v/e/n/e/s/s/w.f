@@ -1,1 +1,0 @@
-speculativeness.15648595

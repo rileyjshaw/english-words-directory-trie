@@ -1,1 +1,0 @@
-thiobacillus.285600212

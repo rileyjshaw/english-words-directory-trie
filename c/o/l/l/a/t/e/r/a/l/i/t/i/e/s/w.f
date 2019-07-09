@@ -1,1 +1,0 @@
-collateralities.65450540

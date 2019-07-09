@@ -1,1 +1,0 @@
-vancomycins.292145373

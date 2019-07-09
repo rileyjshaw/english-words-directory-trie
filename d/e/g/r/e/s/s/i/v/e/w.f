@@ -1,1 +1,0 @@
-degressive.72590359

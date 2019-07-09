@@ -1,1 +1,0 @@
-analphabetes.47600490

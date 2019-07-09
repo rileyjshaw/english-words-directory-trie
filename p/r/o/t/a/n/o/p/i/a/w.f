@@ -1,1 +1,0 @@
-protanopia.3510540

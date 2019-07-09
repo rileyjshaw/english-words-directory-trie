@@ -1,1 +1,0 @@
-hieroglyphical.24990437

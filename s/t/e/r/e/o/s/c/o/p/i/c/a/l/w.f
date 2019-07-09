@@ -1,1 +1,0 @@
-stereoscopical.158270420

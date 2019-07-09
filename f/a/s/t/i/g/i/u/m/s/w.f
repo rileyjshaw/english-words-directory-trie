@@ -1,1 +1,0 @@
-fastigiums.84490245

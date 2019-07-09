@@ -1,1 +1,0 @@
-powerfulness's.135065182

@@ -1,1 +1,0 @@
-subpotencies.16065069

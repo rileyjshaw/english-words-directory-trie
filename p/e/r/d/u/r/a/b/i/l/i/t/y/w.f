@@ -1,1 +1,0 @@
-perdurability.32725564

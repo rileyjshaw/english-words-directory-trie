@@ -1,1 +1,0 @@
-gubernation.92225406

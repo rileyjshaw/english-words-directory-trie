@@ -1,1 +1,0 @@
-adversatives.4581512

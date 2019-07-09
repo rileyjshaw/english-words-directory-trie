@@ -1,1 +1,0 @@
-phosphofructokinases.130900296

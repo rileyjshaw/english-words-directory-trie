@@ -1,1 +1,0 @@
-pneumococci.259420270

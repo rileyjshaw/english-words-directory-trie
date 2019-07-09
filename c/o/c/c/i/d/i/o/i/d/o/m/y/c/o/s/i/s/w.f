@@ -1,1 +1,0 @@
-coccidioidomycosis.17255113

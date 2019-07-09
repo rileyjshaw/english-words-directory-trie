@@ -1,1 +1,0 @@
-heterosexism.95200183

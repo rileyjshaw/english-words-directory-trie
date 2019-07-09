@@ -1,1 +1,0 @@
-copresident.67830215

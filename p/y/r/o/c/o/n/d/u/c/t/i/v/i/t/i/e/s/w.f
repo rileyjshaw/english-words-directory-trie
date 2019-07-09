@@ -1,1 +1,0 @@
-pyroconductivities.13923095

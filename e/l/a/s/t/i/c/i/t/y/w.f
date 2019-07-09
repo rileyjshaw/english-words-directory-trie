@@ -1,1 +1,0 @@
-elasticity.21598554

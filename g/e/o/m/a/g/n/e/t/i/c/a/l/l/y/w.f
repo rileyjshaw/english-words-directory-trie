@@ -1,1 +1,0 @@
-geomagnetically.23800169

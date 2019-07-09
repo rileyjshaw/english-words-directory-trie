@@ -1,1 +1,0 @@
-geothermometer.89845292

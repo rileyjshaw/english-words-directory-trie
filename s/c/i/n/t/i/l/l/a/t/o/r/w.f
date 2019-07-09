@@ -1,1 +1,0 @@
-scintillator.3748532

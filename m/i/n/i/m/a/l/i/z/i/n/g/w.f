@@ -1,1 +1,0 @@
-minimalizing.113645328

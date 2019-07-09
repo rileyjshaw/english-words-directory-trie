@@ -1,1 +1,0 @@
-gnosiology.91035142

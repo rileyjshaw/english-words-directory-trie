@@ -1,1 +1,0 @@
-ferrimagnetism's.85085127

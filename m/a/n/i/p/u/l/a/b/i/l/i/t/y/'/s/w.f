@@ -1,1 +1,0 @@
-manipulability's.110670248

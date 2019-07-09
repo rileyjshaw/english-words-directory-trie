@@ -1,1 +1,0 @@
-lapidified.27965315

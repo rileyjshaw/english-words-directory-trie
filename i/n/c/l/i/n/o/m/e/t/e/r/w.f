@@ -1,1 +1,0 @@
-inclinometer.26180297

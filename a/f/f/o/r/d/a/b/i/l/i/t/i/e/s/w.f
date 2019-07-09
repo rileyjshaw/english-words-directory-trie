@@ -1,1 +1,0 @@
-affordabilities.45815305

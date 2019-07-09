@@ -1,1 +1,0 @@
-geopolitically.23800186

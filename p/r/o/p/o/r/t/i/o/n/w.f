@@ -1,1 +1,0 @@
-proportion.3570541

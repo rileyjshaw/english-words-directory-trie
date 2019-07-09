@@ -1,1 +1,0 @@
-sporophytic.157080292

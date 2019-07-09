@@ -1,1 +1,0 @@
-regularities.8925466

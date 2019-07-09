@@ -1,1 +1,0 @@
-stagnances.27965034

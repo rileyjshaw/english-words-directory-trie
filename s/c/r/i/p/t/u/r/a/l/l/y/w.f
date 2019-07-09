@@ -1,1 +1,0 @@
-scripturally.37485138

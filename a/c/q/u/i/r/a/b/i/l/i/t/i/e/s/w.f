@@ -1,1 +1,0 @@
-acquirabilities.185045524

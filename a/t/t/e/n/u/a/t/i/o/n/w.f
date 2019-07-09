@@ -1,1 +1,0 @@
-attenuation.190400155

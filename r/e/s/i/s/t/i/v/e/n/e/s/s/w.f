@@ -1,1 +1,0 @@
-resistiveness.143990593

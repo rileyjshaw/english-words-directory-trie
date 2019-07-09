@@ -1,1 +1,0 @@
-typological.41650462

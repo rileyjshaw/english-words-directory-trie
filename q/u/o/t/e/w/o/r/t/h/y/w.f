@@ -1,1 +1,0 @@
-quoteworthy.139825388

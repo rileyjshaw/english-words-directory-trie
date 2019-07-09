@@ -1,1 +1,0 @@
-apophthegmatical.49385438

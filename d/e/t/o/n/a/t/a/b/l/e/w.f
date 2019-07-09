@@ -1,1 +1,0 @@
-detonatable.73780398

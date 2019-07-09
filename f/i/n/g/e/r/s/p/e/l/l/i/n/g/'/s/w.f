@@ -1,1 +1,0 @@
-fingerspelling's.8568079

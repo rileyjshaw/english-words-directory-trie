@@ -1,1 +1,0 @@
-gutturalities.92820127

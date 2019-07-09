@@ -1,1 +1,0 @@
-logarithmical.28560283

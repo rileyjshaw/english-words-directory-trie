@@ -1,1 +1,0 @@
-thermoelectricity's.166005162

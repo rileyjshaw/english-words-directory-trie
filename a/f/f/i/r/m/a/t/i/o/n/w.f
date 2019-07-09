@@ -1,1 +1,0 @@
-affirmation.18623578

@@ -1,1 +1,0 @@
-logodaedalic.108885172

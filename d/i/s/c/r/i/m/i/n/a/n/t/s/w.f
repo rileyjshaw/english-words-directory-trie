@@ -1,1 +1,0 @@
-discriminants.19635574

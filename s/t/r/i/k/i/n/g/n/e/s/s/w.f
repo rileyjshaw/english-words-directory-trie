@@ -1,1 +1,0 @@
-strikingness.159460303

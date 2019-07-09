@@ -1,1 +1,0 @@
-anthropocentricity's.4879019

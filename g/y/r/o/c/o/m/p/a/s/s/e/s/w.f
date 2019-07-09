@@ -1,1 +1,0 @@
-gyrocompasses.24395413

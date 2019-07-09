@@ -1,1 +1,0 @@
-stoichiometries.158865286

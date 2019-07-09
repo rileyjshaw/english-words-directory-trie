@@ -1,1 +1,0 @@
-anorthosite.12495282

@@ -1,1 +1,0 @@
-lectionary.27965449

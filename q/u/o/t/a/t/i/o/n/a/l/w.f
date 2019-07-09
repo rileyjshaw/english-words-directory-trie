@@ -1,1 +1,0 @@
-quotational.139825382

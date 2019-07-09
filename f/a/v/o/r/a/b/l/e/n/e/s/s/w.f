@@ -1,1 +1,0 @@
-favorableness.220745119

@@ -1,1 +1,0 @@
-resultantly.144585287

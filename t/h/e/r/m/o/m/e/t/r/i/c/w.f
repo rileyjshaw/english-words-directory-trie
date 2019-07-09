@@ -1,1 +1,0 @@
-thermometric.285600104

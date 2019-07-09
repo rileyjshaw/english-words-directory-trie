@@ -1,1 +1,0 @@
-stereoregularities.158270418

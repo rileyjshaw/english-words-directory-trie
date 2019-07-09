@@ -1,1 +1,0 @@
-levorotatory.24097555

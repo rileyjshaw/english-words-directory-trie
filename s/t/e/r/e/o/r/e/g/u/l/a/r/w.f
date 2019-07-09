@@ -1,1 +1,0 @@
-stereoregular.158270417

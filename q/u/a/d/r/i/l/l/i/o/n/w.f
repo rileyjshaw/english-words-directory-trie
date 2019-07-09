@@ -1,1 +1,0 @@
-quadrillion.263585540

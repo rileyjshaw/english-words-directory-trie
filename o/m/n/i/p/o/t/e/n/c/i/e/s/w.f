@@ -1,1 +1,0 @@
-omnipotencies.122570129

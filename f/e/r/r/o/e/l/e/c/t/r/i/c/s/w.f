@@ -1,1 +1,0 @@
-ferroelectrics.85085143

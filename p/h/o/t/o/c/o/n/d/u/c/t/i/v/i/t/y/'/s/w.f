@@ -1,1 +1,0 @@
-photoconductivity's.130900384

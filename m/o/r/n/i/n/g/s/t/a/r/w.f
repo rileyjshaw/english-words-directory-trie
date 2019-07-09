@@ -1,1 +1,0 @@
-morningstar.116025235

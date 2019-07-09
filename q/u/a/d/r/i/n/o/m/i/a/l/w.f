@@ -1,1 +1,0 @@
-quadrinomial.35105461

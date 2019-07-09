@@ -1,1 +1,0 @@
-allegorizer.186830284

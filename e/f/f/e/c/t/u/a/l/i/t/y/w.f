@@ -1,1 +1,0 @@
-effectuality.20825230

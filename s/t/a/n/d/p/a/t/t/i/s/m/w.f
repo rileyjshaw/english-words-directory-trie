@@ -1,1 +1,0 @@
-standpattism.157675437

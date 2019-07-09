@@ -1,1 +1,0 @@
-cysticercoid.190402

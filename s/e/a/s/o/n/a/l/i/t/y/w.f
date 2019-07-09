@@ -1,1 +1,0 @@
-seasonality.9520187

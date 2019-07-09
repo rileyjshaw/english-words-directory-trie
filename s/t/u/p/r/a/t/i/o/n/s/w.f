@@ -1,1 +1,0 @@
-stuprations.159460588

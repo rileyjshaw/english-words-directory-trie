@@ -1,1 +1,0 @@
-amylopectin.1249517

@@ -1,1 +1,0 @@
-cryptosporidiosis.70210242

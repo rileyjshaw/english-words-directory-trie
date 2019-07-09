@@ -1,1 +1,0 @@
-stereoscopic.1011571

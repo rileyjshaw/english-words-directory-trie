@@ -1,1 +1,0 @@
-indagators.9996059

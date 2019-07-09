@@ -1,1 +1,0 @@
-tetrahedrite.165410280

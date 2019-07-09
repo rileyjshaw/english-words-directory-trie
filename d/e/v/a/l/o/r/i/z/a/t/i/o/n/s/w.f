@@ -1,1 +1,0 @@
-devalorizations.210630556

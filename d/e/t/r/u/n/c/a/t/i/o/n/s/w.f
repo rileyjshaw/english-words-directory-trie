@@ -1,1 +1,0 @@
-detruncations.73780432

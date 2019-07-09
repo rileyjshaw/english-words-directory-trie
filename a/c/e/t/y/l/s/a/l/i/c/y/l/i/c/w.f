@@ -1,1 +1,0 @@
-acetylsalicylic.185045406

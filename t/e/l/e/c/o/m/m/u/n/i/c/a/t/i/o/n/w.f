@@ -1,1 +1,0 @@
-telecommunication.284410380

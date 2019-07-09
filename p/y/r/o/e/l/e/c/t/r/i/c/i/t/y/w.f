@@ -1,1 +1,0 @@
-pyroelectricity.35105387

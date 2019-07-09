@@ -1,1 +1,0 @@
-diamagnetism's.74375196

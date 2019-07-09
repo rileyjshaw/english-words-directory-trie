@@ -1,1 +1,0 @@
-progressivities.34510488

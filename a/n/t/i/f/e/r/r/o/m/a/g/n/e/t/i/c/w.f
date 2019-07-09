@@ -1,1 +1,0 @@
-antiferromagnetic.188020535

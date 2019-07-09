@@ -1,1 +1,0 @@
-pictographically.131495513

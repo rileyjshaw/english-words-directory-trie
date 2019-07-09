@@ -1,1 +1,0 @@
-photovoltaic.2582308

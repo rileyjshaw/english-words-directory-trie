@@ -1,1 +1,0 @@
-phosphoglucomutases.130900298

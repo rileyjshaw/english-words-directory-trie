@@ -1,1 +1,0 @@
-kinetochore.10531592

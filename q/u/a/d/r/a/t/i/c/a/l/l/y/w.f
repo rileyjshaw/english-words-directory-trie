@@ -1,1 +1,0 @@
-quadratically.35105450

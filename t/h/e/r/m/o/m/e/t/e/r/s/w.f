@@ -1,1 +1,0 @@
-thermometers.285600103

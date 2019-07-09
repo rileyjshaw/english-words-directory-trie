@@ -1,1 +1,0 @@
-tropomyosin.169575377

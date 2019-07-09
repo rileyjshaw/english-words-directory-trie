@@ -1,1 +1,0 @@
-potentiometer's.13506526

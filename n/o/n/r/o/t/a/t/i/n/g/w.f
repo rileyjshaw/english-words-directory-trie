@@ -1,1 +1,0 @@
-nonrotating.12078569

@@ -1,1 +1,0 @@
-apophthegm.1309041

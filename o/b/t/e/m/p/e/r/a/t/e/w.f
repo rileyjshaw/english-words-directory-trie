@@ -1,1 +1,0 @@
-obtemperate.121380593

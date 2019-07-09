@@ -1,1 +1,0 @@
-stoichiometrically.158865285

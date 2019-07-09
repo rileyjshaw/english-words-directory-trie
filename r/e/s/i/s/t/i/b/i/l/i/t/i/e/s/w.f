@@ -1,1 +1,0 @@
-resistibilities.143990589

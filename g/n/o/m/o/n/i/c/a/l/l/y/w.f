@@ -1,1 +1,0 @@
-gnomonically.91035138

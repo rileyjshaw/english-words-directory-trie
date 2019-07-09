@@ -1,1 +1,0 @@
-operativity.252280196

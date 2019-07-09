@@ -1,1 +1,0 @@
-seismometer.37485279

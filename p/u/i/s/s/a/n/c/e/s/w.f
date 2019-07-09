@@ -1,1 +1,0 @@
-puissances.35105245

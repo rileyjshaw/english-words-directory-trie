@@ -1,1 +1,0 @@
-declinometers.19040252

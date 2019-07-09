@@ -1,1 +1,0 @@
-exponential.219555272

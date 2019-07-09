@@ -1,1 +1,0 @@
-strainometer.158865592

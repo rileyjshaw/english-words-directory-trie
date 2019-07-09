@@ -1,1 +1,0 @@
-stratospherical.28084075

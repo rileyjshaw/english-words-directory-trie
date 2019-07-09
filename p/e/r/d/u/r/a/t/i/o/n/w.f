@@ -1,1 +1,0 @@
-perduration.129710162

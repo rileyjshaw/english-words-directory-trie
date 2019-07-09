@@ -1,1 +1,0 @@
-quaternion.35105511

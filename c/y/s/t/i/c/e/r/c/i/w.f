@@ -1,1 +1,0 @@
-cysticerci.70805487

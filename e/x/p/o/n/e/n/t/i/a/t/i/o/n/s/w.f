@@ -1,1 +1,0 @@
-exponentiations.22015288

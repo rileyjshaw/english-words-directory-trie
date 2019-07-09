@@ -1,1 +1,0 @@
-goniometrical.91035407

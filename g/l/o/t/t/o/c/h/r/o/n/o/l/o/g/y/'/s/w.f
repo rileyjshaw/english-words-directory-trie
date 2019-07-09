@@ -1,1 +1,0 @@
-glottochronology's.90440510

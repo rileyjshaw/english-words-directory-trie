@@ -1,1 +1,0 @@
-encyclopedical.80325483

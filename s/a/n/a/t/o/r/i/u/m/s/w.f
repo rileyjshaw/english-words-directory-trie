@@ -1,1 +1,0 @@
-sanatoriums.27132094

@@ -1,1 +1,0 @@
-lipogeneses.108290207

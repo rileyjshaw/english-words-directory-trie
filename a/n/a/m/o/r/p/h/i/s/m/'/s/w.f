@@ -1,1 +1,0 @@
-anamorphism's.47600503

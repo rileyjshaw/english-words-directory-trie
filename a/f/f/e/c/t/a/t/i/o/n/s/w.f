@@ -1,1 +1,0 @@
-affectations.18623550

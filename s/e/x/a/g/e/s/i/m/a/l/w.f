@@ -1,1 +1,0 @@
-sexagesimal.37485525

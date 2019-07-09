@@ -1,1 +1,0 @@
-mycoplasmata.117215402

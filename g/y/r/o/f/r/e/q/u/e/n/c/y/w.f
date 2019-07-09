@@ -1,1 +1,0 @@
-gyrofrequency.92820257

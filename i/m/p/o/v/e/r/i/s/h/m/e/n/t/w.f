@@ -1,1 +1,0 @@
-impoverishment.233835528

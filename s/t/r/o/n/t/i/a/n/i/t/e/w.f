@@ -1,1 +1,0 @@
-strontianite.39270385

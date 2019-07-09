@@ -1,1 +1,0 @@
-degeneracies.19040371

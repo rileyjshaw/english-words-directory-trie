@@ -1,1 +1,0 @@
-bacteriorhodopsin.52360354

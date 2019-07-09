@@ -1,1 +1,0 @@
-sociopolitical.9520478

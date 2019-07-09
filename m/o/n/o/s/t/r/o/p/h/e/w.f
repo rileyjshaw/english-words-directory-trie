@@ -1,1 +1,0 @@
-monostrophe.30345162

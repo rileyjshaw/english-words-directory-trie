@@ -1,1 +1,0 @@
-thermocouple.40460588

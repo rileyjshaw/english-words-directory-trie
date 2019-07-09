@@ -1,1 +1,0 @@
-stromatolites.39270381

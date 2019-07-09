@@ -1,1 +1,0 @@
-equidistant.217770488

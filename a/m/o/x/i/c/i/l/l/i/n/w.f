@@ -1,1 +1,0 @@
-amoxicillin.187425231

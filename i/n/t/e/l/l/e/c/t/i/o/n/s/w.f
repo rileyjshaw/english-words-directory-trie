@@ -1,1 +1,0 @@
-intellections.26775190

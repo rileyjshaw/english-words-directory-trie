@@ -1,1 +1,0 @@
-vibratility.177310478

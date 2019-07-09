@@ -1,1 +1,0 @@
-flavoprotein.22610376

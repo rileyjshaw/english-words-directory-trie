@@ -1,1 +1,0 @@
-thermistors.40460582

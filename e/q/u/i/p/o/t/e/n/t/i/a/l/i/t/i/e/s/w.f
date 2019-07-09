@@ -1,1 +1,0 @@
-equipotentialities.82110150

@@ -1,1 +1,0 @@
-thermoelectricities.40460594

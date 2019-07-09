@@ -1,1 +1,0 @@
-computator.6664035

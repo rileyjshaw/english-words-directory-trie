@@ -1,1 +1,0 @@
-gigahertzes.226100174

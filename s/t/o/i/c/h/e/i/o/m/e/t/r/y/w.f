@@ -1,1 +1,0 @@
-stoicheiometry.158865282

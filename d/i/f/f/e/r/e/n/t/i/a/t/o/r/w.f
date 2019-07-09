@@ -1,1 +1,0 @@
-differentiator.19635367

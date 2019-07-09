@@ -1,1 +1,0 @@
-icosahedral.25585522

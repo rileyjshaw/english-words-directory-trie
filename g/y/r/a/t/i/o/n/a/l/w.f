@@ -1,1 +1,0 @@
-gyrational.92820242

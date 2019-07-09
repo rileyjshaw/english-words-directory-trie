@@ -1,1 +1,0 @@
-absorptance's.44625179

@@ -1,1 +1,0 @@
-katharometer's.10472017

@@ -1,1 +1,0 @@
-thermometries.4105512

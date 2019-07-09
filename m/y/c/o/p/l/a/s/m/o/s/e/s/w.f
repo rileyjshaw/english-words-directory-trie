@@ -1,1 +1,0 @@
-mycoplasmoses.248710438

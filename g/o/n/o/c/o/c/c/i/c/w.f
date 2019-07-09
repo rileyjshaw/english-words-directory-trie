@@ -1,1 +1,0 @@
-gonococcic.91035418

@@ -1,1 +1,0 @@
-stratovision.39270316

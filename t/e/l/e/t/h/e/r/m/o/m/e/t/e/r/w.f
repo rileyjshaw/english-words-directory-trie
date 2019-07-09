@@ -1,1 +1,0 @@
-telethermometer.40460294

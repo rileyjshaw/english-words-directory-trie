@@ -1,1 +1,0 @@
-expenditure.219555194

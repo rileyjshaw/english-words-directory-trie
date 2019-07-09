@@ -1,1 +1,0 @@
-seigniorages.37485271

@@ -1,1 +1,0 @@
-icosahedron's.98175247

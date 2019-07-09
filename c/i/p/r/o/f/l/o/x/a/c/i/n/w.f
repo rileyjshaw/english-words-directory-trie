@@ -1,1 +1,0 @@
-ciprofloxacin.201110578

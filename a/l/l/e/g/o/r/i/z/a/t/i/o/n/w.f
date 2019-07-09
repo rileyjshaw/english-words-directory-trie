@@ -1,1 +1,0 @@
-allegorization.186830280

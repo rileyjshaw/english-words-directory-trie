@@ -1,1 +1,0 @@
-globalisation.22669542

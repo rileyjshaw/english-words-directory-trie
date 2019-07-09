@@ -1,1 +1,0 @@
-nonpalatals.120190490

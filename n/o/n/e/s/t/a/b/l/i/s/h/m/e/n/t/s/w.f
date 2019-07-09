@@ -1,1 +1,0 @@
-nonestablishments.120190100

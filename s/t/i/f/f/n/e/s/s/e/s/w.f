@@ -1,1 +1,0 @@
-stiffnesses.15886524

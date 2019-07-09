@@ -1,1 +1,0 @@
-portamentos.134470182

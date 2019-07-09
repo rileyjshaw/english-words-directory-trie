@@ -1,1 +1,0 @@
-thyrocalcitonin.166600231

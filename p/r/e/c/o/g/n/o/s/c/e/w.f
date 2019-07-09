@@ -1,1 +1,0 @@
-precognosce.135065592

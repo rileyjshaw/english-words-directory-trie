@@ -1,1 +1,0 @@
-capsomeres.60095575

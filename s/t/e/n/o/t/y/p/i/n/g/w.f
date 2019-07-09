@@ -1,1 +1,0 @@
-stenotyping.158270321

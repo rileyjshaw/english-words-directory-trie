@@ -1,1 +1,0 @@
-statutable.3927061

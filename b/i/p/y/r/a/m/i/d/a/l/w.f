@@ -1,1 +1,0 @@
-bipyramidal.5593041

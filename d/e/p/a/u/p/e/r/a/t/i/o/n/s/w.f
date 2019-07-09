@@ -1,1 +1,0 @@
-depauperations.73185401

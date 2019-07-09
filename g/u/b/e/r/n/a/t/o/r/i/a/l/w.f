@@ -1,1 +1,0 @@
-gubernatorial.22848023

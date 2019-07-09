@@ -1,1 +1,0 @@
-duodecimal's.78540177

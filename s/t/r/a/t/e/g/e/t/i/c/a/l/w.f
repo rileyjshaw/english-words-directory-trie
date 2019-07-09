@@ -1,1 +1,0 @@
-strategetical.28084057

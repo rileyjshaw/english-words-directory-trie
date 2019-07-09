@@ -1,1 +1,0 @@
-karyotypings.104125574

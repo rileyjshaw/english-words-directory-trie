@@ -1,1 +1,0 @@
-fundamentalistic.88060515

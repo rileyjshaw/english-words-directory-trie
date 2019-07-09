@@ -1,1 +1,0 @@
-capitalisation.198135491

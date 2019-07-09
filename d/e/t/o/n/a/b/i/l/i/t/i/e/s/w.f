@@ -1,1 +1,0 @@
-detonabilities.73780395

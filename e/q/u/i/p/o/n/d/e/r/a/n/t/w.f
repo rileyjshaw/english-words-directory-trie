@@ -1,1 +1,0 @@
-equiponderant.82110145

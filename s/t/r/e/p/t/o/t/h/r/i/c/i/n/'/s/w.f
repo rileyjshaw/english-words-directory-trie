@@ -1,1 +1,0 @@
-streptothricin's.159460230

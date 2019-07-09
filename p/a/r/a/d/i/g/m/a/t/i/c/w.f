@@ -1,1 +1,0 @@
-paradigmatic.255255110

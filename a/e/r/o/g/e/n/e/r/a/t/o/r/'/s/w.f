@@ -1,1 +1,0 @@
-aerogenerator's.45815135

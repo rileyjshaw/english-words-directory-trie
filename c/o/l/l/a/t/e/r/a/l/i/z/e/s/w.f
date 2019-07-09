@@ -1,1 +1,0 @@
-collateralizes.65450544

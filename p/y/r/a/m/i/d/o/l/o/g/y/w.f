@@ -1,1 +1,0 @@
-pyramidology.13923030

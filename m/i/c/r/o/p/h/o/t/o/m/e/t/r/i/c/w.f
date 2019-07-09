@@ -1,1 +1,0 @@
-microphotometric.113050358

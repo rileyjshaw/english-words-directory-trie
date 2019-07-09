@@ -1,1 +1,0 @@
-televangelist.284410479

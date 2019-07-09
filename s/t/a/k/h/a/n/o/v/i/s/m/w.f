@@ -1,1 +1,0 @@
-stakhanovism.27965071

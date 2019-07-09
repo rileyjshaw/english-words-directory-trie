@@ -1,1 +1,0 @@
-sphericalness's.156485315

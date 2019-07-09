@@ -1,1 +1,0 @@
-durational.78540239

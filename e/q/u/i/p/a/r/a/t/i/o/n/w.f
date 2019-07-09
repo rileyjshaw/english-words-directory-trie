@@ -1,1 +1,0 @@
-equiparation.82110132

@@ -1,1 +1,0 @@
-anthophyllite.48195594

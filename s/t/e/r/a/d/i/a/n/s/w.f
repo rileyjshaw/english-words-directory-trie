@@ -1,1 +1,0 @@
-steradians.39270127

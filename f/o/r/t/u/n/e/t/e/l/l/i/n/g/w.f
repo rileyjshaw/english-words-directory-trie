@@ -1,1 +1,0 @@
-fortunetelling.223125565

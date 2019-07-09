@@ -1,1 +1,0 @@
-gyrocompass's.92820251

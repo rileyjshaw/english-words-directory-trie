@@ -1,1 +1,0 @@
-specularity.15648591

@@ -1,1 +1,0 @@
-patriarchisms.255850292

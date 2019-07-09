@@ -1,1 +1,0 @@
-collateralization.65450541

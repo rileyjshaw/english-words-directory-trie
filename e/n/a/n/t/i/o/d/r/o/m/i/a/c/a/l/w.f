@@ -1,1 +1,0 @@
-enantiodromiacal.80325301

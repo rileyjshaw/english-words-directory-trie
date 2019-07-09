@@ -1,1 +1,0 @@
-equipollent.21420407

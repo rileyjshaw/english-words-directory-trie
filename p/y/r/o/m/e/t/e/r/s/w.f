@@ -1,1 +1,0 @@
-pyrometers.35105405

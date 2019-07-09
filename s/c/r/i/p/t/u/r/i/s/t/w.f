@@ -1,1 +1,0 @@
-scripturist.14994050

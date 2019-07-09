@@ -1,1 +1,0 @@
-cardinalitial.60690205

@@ -1,1 +1,0 @@
-adversaria.11305457

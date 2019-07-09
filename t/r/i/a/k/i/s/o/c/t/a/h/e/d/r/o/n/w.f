@@ -1,1 +1,0 @@
-triakisoctahedron.168980128

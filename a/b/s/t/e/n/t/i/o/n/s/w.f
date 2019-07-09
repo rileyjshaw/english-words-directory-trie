@@ -1,1 +1,0 @@
-abstentions.18504580

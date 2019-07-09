@@ -1,1 +1,0 @@
-stenographed.158270298

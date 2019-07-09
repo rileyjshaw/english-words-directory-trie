@@ -1,1 +1,0 @@
-streptococcus.280840159

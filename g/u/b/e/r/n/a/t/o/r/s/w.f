@@ -1,1 +1,0 @@
-gubernators.92225409

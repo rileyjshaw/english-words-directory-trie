@@ -1,1 +1,0 @@
-quadruplicities.139230376

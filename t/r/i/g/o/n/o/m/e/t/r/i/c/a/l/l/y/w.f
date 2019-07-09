@@ -1,1 +1,0 @@
-trigonometrically.168980437

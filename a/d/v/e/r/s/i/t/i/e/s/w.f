@@ -1,1 +1,0 @@
-adversities.185640436

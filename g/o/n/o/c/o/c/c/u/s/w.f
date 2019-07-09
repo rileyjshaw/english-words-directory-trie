@@ -1,1 +1,0 @@
-gonococcus.23800573

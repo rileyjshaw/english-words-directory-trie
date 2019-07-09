@@ -1,1 +1,0 @@
-outstrokes.1249508

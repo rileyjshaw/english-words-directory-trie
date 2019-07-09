@@ -1,1 +1,0 @@
-serodiagnoses.151130348

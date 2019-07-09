@@ -1,1 +1,0 @@
-counterdrawing.68425524

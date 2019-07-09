@@ -1,1 +1,0 @@
-vernacularly.4343523

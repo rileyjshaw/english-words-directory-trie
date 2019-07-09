@@ -1,1 +1,0 @@
-affirmatory.11305557

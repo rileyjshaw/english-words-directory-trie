@@ -1,1 +1,0 @@
-stereometer.158270399

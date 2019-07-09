@@ -1,1 +1,0 @@
-photoelasticity.33320316

@@ -1,1 +1,0 @@
-thermoluminescent.410558

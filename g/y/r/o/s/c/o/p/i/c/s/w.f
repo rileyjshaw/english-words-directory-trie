@@ -1,1 +1,0 @@
-gyroscopics.228480437

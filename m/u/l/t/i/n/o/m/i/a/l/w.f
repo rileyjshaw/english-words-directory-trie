@@ -1,1 +1,0 @@
-multinomial.116620432

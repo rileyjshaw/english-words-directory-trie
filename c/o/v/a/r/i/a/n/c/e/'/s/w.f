@@ -1,1 +1,0 @@
-covariance's.69020288

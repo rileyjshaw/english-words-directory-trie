@@ -1,1 +1,0 @@
-serigraphic.151130303

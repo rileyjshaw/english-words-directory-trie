@@ -1,1 +1,0 @@
-crosshatchings.69615532

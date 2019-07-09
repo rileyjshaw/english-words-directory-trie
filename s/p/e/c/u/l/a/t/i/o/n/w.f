@@ -1,1 +1,0 @@
-speculation.183855576

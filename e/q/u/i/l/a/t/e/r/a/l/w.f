@@ -1,1 +1,0 @@
-equilateral.217770492

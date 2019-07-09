@@ -1,1 +1,0 @@
-kurchatovium.105910199

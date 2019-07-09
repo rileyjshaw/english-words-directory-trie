@@ -1,1 +1,0 @@
-streptomycin.280840160

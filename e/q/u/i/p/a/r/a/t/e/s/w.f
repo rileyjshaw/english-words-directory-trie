@@ -1,1 +1,0 @@
-equiparates.82110130

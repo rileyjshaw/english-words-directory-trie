@@ -1,1 +1,0 @@
-associators.189805398

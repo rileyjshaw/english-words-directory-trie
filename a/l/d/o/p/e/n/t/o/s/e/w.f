@@ -1,1 +1,0 @@
-aldopentose.46410475

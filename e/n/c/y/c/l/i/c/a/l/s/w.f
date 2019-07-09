@@ -1,1 +1,0 @@
-encyclicals.216580505

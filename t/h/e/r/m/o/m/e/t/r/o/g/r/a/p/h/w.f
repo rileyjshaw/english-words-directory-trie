@@ -1,1 +1,0 @@
-thermometrograph.166005194

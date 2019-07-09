@@ -1,1 +1,0 @@
-logodaedalies.241570540

@@ -1,1 +1,0 @@
-curvicostate.7080591

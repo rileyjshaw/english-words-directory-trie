@@ -1,1 +1,0 @@
-intensifiers.23621530

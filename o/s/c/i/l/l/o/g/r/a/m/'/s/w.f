@@ -1,1 +1,0 @@
-oscillogram's.123165554

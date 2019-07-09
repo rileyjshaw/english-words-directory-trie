@@ -1,1 +1,0 @@
-stratocracy.39270312

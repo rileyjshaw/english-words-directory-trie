@@ -1,1 +1,0 @@
-photodetector.130900392

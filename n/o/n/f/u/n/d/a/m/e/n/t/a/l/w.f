@@ -1,1 +1,0 @@
-nonfundamental.120190174

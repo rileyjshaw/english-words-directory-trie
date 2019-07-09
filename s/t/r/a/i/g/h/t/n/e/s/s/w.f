@@ -1,1 +1,0 @@
-straightness.280245594

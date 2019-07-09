@@ -1,1 +1,0 @@
-penicillinases.129115390

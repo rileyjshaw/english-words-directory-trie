@@ -1,1 +1,0 @@
-pictography.131495515

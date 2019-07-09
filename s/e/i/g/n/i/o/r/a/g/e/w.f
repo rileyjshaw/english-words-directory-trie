@@ -1,1 +1,0 @@
-seigniorage.37485270

@@ -1,1 +1,0 @@
-southeasterly.277865328

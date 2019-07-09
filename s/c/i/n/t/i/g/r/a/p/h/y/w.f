@@ -1,1 +1,0 @@
-scintigraphy.149345179

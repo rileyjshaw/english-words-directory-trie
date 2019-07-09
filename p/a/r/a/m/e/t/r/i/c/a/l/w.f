@@ -1,1 +1,0 @@
-parametrical.12792582

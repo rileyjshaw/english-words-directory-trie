@@ -1,1 +1,0 @@
-seismographical.150535157

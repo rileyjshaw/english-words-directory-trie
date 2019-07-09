@@ -1,1 +1,0 @@
-resegregates.143990459

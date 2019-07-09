@@ -1,1 +1,0 @@
-journalises.238000103

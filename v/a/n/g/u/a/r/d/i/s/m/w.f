@@ -1,1 +1,0 @@
-vanguardism.42840418

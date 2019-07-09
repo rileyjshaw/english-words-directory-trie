@@ -1,1 +1,0 @@
-effectively.297534

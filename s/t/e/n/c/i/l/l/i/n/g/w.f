@@ -1,1 +1,0 @@
-stencilling.279650535

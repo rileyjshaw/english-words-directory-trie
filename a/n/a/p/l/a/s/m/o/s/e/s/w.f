@@ -1,1 +1,0 @@
-anaplasmoses.47600535

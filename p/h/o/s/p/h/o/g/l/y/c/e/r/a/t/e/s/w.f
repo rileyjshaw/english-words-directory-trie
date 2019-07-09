@@ -1,1 +1,0 @@
-phosphoglycerates.130900302

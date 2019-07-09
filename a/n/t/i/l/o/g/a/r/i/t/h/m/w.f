@@ -1,1 +1,0 @@
-antilogarithm.188020562

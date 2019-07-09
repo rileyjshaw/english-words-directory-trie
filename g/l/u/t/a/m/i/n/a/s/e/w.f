@@ -1,1 +1,0 @@
-glutaminase.910350

@@ -1,1 +1,0 @@
-stereotypes.28024512

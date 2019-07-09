@@ -1,1 +1,0 @@
-speechmakings.156485113

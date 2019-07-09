@@ -1,1 +1,0 @@
-dilatometric.74970151

@@ -1,1 +1,0 @@
-stratigraphic.39270309

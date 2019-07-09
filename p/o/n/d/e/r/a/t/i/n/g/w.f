@@ -1,1 +1,0 @@
-ponderating.133875495

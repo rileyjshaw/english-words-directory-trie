@@ -1,1 +1,0 @@
-squiralities.279055512

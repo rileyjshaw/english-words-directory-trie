@@ -1,1 +1,0 @@
-stereophotographic.158270410

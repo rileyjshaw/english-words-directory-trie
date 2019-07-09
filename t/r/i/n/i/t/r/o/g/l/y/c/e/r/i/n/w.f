@@ -1,1 +1,0 @@
-trinitroglycerin.41650171

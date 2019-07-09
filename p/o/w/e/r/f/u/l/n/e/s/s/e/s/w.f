@@ -1,1 +1,0 @@
-powerfulnesses.3451042

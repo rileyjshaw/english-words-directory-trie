@@ -1,1 +1,0 @@
-luteotropic.109480267

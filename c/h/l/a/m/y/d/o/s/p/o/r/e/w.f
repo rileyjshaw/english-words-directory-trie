@@ -1,1 +1,0 @@
-chlamydospore.16660133

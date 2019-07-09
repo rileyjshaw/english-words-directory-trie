@@ -1,1 +1,0 @@
-horoscopes.23205048

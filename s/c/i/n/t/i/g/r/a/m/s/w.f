@@ -1,1 +1,0 @@
-scintigrams.149345176

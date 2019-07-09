@@ -1,1 +1,0 @@
-quadrisecting.139230347

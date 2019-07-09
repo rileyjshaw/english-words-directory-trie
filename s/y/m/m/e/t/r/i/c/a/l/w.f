@@ -1,1 +1,0 @@
-symmetrical.283220169

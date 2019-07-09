@@ -1,1 +1,0 @@
-streptococcal.280840157

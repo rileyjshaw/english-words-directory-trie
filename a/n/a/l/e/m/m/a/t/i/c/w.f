@@ -1,1 +1,0 @@
-analemmatic.47600472

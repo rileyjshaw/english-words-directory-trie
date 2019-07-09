@@ -1,1 +1,0 @@
-democratic.595186

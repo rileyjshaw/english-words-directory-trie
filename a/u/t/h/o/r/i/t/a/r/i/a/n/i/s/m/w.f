@@ -1,1 +1,0 @@
-authoritarianism.190400409

@@ -1,1 +1,0 @@
-barycentres.192185118

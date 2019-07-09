@@ -1,1 +1,0 @@
-chymotrypsin.16660335

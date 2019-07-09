@@ -1,1 +1,0 @@
-phosphomonoesterases.130900309

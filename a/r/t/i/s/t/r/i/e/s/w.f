@@ -1,1 +1,0 @@
-artistries.50575212

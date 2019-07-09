@@ -1,1 +1,0 @@
-trigonometry.287980141

@@ -1,1 +1,0 @@
-paragraphical.12792510

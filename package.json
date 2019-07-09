@@ -1,0 +1,22 @@
+{
+  "name": "ascii-garden",
+  "version": "1.0.0",
+  "description": "A nice text garden",
+  "main": "server.js",
+  "dependencies": {
+    "wordlist-english": "^1.2.1",
+    "word-list": "^3.0.0"
+  },
+  "engines": {
+    "node": "8.x"
+  },
+  "repository": {
+    "url": "https://glitch.com/edit/#!/pine-tuna"
+  },
+  "license": "MIT",
+  "keywords": [
+    "node",
+    "glitch",
+    "express"
+  ]
+}

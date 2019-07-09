@@ -1,1 +1,0 @@
-thermojunction's.166005185

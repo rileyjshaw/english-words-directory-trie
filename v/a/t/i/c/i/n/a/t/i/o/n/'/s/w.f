@@ -1,1 +1,0 @@
-vaticination's.176715350

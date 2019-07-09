@@ -1,1 +1,0 @@
-transmittancies.287385270

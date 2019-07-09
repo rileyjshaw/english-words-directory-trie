@@ -1,1 +1,0 @@
-stakhanovite.157675339

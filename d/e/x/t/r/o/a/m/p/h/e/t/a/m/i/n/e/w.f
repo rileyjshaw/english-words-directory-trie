@@ -1,1 +1,0 @@
-dextroamphetamine.19635203

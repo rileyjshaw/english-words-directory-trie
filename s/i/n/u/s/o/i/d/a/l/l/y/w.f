@@ -1,1 +1,0 @@
-sinusoidally.38080320

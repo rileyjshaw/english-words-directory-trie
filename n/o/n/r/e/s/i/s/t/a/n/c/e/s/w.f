@@ -1,1 +1,0 @@
-nonresistances.12078541

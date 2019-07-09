@@ -1,1 +1,0 @@
-pyrometries.139230140

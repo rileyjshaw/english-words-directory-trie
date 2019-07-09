@@ -1,1 +1,0 @@
-oscillograph.3213079

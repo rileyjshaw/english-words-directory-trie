@@ -1,1 +1,0 @@
-antispending.49385104

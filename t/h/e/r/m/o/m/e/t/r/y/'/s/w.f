@@ -1,1 +1,0 @@
-thermometry's.166005196

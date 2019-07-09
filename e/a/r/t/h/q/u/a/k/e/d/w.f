@@ -1,1 +1,0 @@
-earthquaked.78540587

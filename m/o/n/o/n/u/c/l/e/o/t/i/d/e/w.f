@@ -1,1 +1,0 @@
-mononucleotide.115430426

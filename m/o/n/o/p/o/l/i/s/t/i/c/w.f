@@ -1,1 +1,0 @@
-monopolistic.247520263

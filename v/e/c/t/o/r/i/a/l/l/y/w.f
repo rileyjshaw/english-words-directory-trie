@@ -1,1 +1,0 @@
-vectorially.176715404

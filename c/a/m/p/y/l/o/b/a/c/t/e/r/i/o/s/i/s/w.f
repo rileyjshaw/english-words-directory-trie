@@ -1,1 +1,0 @@
-campylobacteriosis.60095120

@@ -1,1 +1,0 @@
-stereometries.2802455

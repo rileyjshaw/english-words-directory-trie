@@ -1,1 +1,0 @@
-antiferromagnetisms.48790310

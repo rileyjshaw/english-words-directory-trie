@@ -1,1 +1,0 @@
-gonococcal.23800571

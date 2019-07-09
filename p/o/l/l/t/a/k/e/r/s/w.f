@@ -1,1 +1,0 @@
-polltakers.26001547

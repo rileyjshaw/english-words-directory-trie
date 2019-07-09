@@ -1,1 +1,0 @@
-standpoints.279650178

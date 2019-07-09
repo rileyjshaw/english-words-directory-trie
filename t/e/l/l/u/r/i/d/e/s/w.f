@@ -1,1 +1,0 @@
-tellurides.40460310

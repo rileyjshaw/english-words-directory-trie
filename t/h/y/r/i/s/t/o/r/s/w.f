@@ -1,1 +1,0 @@
-thyristors.41055151

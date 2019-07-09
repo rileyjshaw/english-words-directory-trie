@@ -1,1 +1,0 @@
-thermograms.166005176

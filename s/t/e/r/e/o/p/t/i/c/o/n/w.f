@@ -1,1 +1,0 @@
-stereopticon.39270144

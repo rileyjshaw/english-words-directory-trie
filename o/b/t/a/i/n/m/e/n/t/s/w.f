@@ -1,1 +1,0 @@
-obtainments.121380590

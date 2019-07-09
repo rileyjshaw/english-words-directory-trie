@@ -1,1 +1,0 @@
-jequirities.103530232

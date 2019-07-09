@@ -1,1 +1,0 @@
-counterstroke.205870296

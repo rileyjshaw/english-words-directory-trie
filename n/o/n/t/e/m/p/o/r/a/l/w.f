@@ -1,1 +1,0 @@
-nontemporal.30940564

@@ -1,1 +1,0 @@
-characteristic.178531

@@ -1,1 +1,0 @@
-stupidities.280840445

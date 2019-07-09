@@ -1,1 +1,0 @@
-aplanatism.49385342

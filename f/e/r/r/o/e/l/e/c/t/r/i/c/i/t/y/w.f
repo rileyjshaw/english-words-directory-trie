@@ -1,1 +1,0 @@
-ferroelectricity.85085142

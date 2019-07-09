@@ -1,1 +1,0 @@
-bankrupting.191590367

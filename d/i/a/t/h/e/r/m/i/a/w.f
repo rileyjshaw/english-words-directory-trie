@@ -1,1 +1,0 @@
-diathermia.74375300

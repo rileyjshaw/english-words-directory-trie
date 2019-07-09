@@ -1,1 +1,0 @@
-strontianite's.159460419

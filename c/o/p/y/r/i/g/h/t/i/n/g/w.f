@@ -1,1 +1,0 @@
-copyrighting.205275231

@@ -1,1 +1,0 @@
-rickettsia.36295493

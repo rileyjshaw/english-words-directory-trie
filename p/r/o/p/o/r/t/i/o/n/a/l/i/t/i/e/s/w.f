@@ -1,1 +1,0 @@
-proportionalities.34510582

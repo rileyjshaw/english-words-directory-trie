@@ -1,1 +1,0 @@
-ownerships.32130489

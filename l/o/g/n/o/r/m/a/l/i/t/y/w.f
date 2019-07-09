@@ -1,1 +1,0 @@
-lognormality.108885170

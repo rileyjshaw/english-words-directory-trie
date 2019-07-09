@@ -1,1 +1,0 @@
-stenographer.279650541

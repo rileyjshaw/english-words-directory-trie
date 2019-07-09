@@ -1,1 +1,0 @@
-geocentrism.23800158

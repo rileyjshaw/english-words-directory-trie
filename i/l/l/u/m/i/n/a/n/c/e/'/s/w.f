@@ -1,1 +1,0 @@
-illuminance's.98175481

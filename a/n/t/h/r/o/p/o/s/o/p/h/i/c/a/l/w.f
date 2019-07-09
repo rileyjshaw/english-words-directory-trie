@@ -1,1 +1,0 @@
-anthroposophical.4879066

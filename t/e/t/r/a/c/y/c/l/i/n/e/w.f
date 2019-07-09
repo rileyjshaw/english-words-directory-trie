@@ -1,1 +1,0 @@
-tetracycline.285005383

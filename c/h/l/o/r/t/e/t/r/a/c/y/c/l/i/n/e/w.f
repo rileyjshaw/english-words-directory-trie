@@ -1,1 +1,0 @@
-chlortetracycline.16660163

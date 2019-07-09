@@ -1,1 +1,0 @@
-stramonium.39270297

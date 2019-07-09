@@ -1,1 +1,0 @@
-karyotypes.27370398

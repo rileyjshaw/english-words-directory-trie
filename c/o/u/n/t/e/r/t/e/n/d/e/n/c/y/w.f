@@ -1,1 +1,0 @@
-countertendency.69020156

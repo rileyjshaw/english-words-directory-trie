@@ -1,1 +1,0 @@
-determinates.210630461

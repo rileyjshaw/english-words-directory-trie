@@ -1,1 +1,0 @@
-affluences.45815289

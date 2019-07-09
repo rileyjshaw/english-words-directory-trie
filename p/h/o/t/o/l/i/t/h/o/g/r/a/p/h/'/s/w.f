@@ -1,1 +1,0 @@
-photolithograph's.130900482

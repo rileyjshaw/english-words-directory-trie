@@ -1,1 +1,0 @@
-gyromagnetic.24395414

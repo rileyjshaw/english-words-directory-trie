@@ -1,1 +1,0 @@
-nonequilibria.250495276

@@ -1,1 +1,0 @@
-glottochronological.90440509

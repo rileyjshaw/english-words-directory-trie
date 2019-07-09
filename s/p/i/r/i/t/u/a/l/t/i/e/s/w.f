@@ -1,1 +1,0 @@
-spiritualties.38675412

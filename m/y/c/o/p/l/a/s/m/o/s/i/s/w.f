@@ -1,1 +1,0 @@
-mycoplasmosis.248710439

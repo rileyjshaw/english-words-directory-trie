@@ -1,1 +1,0 @@
-bisymmetries.193970387

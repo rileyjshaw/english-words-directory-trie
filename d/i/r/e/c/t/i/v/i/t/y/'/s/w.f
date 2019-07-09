@@ -1,1 +1,0 @@
-directivity's.74970474

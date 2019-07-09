@@ -1,1 +1,0 @@
-teleshopping.164815191

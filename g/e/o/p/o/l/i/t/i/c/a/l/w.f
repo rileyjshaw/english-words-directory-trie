@@ -1,1 +1,0 @@
-geopolitical.225505533

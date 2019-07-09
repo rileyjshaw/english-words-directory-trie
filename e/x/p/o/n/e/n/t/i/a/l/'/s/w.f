@@ -1,1 +1,0 @@
-exponential's.83300496

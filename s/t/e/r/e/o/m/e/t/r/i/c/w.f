@@ -1,1 +1,0 @@
-stereometric.158270401

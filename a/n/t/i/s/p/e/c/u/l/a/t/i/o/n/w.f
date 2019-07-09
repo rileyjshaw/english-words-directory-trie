@@ -1,1 +1,0 @@
-antispeculation.49385102

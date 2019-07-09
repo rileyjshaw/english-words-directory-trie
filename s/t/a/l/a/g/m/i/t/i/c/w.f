@@ -1,1 +1,0 @@
-stalagmitic.3927010

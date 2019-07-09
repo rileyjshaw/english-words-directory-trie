@@ -1,1 +1,0 @@
-granodiorite.91630241
